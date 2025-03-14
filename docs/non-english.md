@@ -762,6 +762,7 @@
 * [Doronime](https://doronime.id/) - Anime / Sub / 1080p
 * [IndonesiaEbook](https://ebook.twointomedia.com/) - Books
 * [madrotter-treasure-hunt](https://madrotter-treasure-hunt.blogspot.com/) - Music
+* [Adikfilm](https://adikfilm.click/) - Movies
 
 ## ▷ Streaming / Menyiarkan
 
